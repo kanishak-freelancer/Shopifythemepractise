@@ -1,2 +1,1 @@
 # Shopifythemepractise
-# Shopifythemepractise
